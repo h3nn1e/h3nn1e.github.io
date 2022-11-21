@@ -1,3 +1,6 @@
 # h3nn1e.github.io
 
-![wine glass]([https://www.pexels.com/photo/clear-wine-glass-on-brown-wooden-table-14075662/])
+## Why does money buy happiness?
+What is money? Money is an item that is used to pay for other goods, services, and other items. 
+
+Knowing that we need money to buy things, we need money to have a proper life. Without money we wouldn't be able to go to good schools. We wouldn't be able to have a good house to shelter us.

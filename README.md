@@ -8,7 +8,7 @@ Knowing that we need money to buy things, we need money to have a proper life. W
 
 Money is often the reason on why people steal, fight, die, and struggle. Money isn't easy to get too so some people use dangerous ways to achieve their money. How can we get money without having to use such unsafe ways? Why do we need money?
 
-## Why do we need money?
+## Why do we need money? We need money to get:
 1. Things we need to survive (e.g. Food and water)
 
 2. Sanitary needs (e.g. Napkin, tissues, soap, toothbrush, toothpaste, and etc..)

@@ -11,15 +11,15 @@ Money is often the reason on why people steal, fight, die, and struggle. Money i
 ### Why do we need money? We need money to get:
 1. Things we need to survive (e.g. Food and water)
 
-2. Sanitary needs (e.g. Napkin, tissues, soap, toothbrush, toothpaste, and etc..)
+2. Sanitary needs (e.g. Napkin, tissues, soap, toothbrush, toothpaste, etc..)
 
 3. Shelter (e.g. houses)
 
-4. Needed appliances (e.g. Refrigerator, stove, oven, and etc..)
+4. Needed appliances (e.g. Refrigerator, stove, oven, etc..)
 
-5. Likes and wants (e.g. Phones, laptops, cars, toys, and etc..)
+5. Likes and wants (e.g. Phones, laptops, cars, toys, etc..)
 
-There are a lot of things that we need and want but can only be taken if we have the money to buy them. Then how do we get money? We get money by working and in excahnge of working, people get payed. What are some of the high paying jobs some people like and study for?
+There are a lot of things that we need and want but can only be taken if we have the money to buy them. Then how do we get money? We get money by working and in exchange for working, people get paid. What are some of the high-paying jobs some people like and study for?
 
 ### What are some of the common jobs most people get?
 1. Cashier
@@ -44,15 +44,15 @@ There are a lot of things that we need and want but can only be taken if we have
 
 
 ### If you are looking for a high paying job in the Philippines, maybe these are the type of jobs you should be studying for:
-1. Doctor (Avarage salary: 166,000 PHP)
+1. Doctor (Average salary: 166,000 PHP)
 
-2. Lawyer (Avarage salary: 113,000 PHP)
+2. Lawyer (Average salary: 113,000 PHP)
 
-3. Judge (Avarage salary: 139,000 PHP)
+3. Judge (Average salary: 139,000 PHP)
 
 4. Psychiatrist
 
-5. Orthodontist and many more
+5. Orthodontists and many more
 
 If we want to get a big salary we should study hard for the jobs that pay high, money is not easy to obtain and that is why we should study and work for it.
 
